@@ -1,0 +1,1 @@
+![](Presentation/SPEED DESIGNATHON - HARSH VARDHAN SINGH.pdf)
